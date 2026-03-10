@@ -2,7 +2,7 @@
 
 **`Desenvolvedora Front end `**
 
-Me chamo Marina Lima , tenho 36 anos e sou natural de Minas Gerais . Concluí faculdade de Engenharia da computação , com pós em matemática . Atualmente, estou cursando Análise de dados com Big date. Sou apaixonada por tecnologia e compartilho meu conhecimento através do meu portifolio  "[https://marilimaportifolio.com/)", onde montro meu projetos. 
+Me chamo Marina Lima , tenho 36 anos e sou natural de Minas Gerais . Concluí faculdade de Engenharia da computação , com pós em matemática . Atualmente, estou cursando Análise de dados com Big date. Sou apaixonada por tecnologia e compartilho meu conhecimento através do meu portifolio  "[https://marilimaportifolio.com/   https://limacode25.com/)" , onde montro meu projetos. 
 
 
 
